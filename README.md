@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @VadymCHorny
 - 👀 I’m interested in 2..4
 - 🌱 I’m currently learning M..7
-- 💞️ I’m looking to collaborate on  
+- 💞️ I’m looking to collaborate on ' '
 - 📫 How to reach me !
 
 <!---
